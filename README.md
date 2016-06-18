@@ -1,4 +1,4 @@
-# Modpack: Radioactive Fortress Issues
+# Modpack: DRA - The Battles Beginning Issues
 
 ___
 
